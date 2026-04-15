@@ -1,9 +1,11 @@
-Hi there 👋
+👋 Hi, I'm Romelyn Barbadillo
 
-I'm Romelyn 🧏‍♀️
+💼 Sales Representative | Customer Service | Virtual Assistant
 
-💡 Results-driven professional with 6+ years of experience in BPO, healthcare, retail, and virtual assistance.
+📍 Philippines | 🌐 Open to Remote Opportunities
 
-⚡ Skilled in handling high-volume interactions, CRM management, and delivering excellent customer experiences.
 
-🎯 Passionate about helping businesses grow through customer support, sales, and efficient operations.
+💡 About Me
+
+Results-driven Customer Service and Sales professional with 6+ years of experience across BPO, healthcare insurance, retail, and virtual assistance.
+I specialize in handling high-volume customer interactions, resolving complex issues, and maintaining excellent customer satisfaction. I thrive in fast-paced remote environments and bring a strong customer-first mindset to every role.
